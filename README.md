@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @kumbha Naga Venkata Gopi
+- 👀 I’m interested in AI and ML
+- 🌱 I’m currently learning Machine Learning, deep learning, NLP, Python 
+- 💞️ I’m looking to collaborate on good working space where i can contribue myself towards to the organization.
+- 📫 You can reach me out nvgopi20@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Life is a beautiful struggle...!!
+- I am going to give my project access to private so you can modify according to your requirements feel free to reach out me if there is any quieries....
+- thank you for looking over to my profile.......!!!!!!!!!
